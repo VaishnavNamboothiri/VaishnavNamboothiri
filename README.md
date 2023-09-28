@@ -17,6 +17,9 @@
 
 - ⚡ Fun fact **my graveyard shift is always active 24/7**
 
+- ![gif1](https://github.com/VaishnavNamboothiri/VaishnavNamboothiri/assets/44900477/68220f38-8ada-4436-b6d5-4c13ef100261)
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://in.linkedin.com/in/vaishnavnamboothiri" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://in.linkedin.com/in/vaishnavnamboothiri" height="30" width="40" /></a>
